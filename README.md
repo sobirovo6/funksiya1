@@ -1,0 +1,2 @@
+# funksiya1
+ 
